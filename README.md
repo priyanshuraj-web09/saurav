@@ -1,3 +1,4 @@
+![WhatsApp Image 2026-03-28 at 10 09 31 PM](https://github.com/user-attachments/assets/064c3dc8-0f67-4120-83b5-e6b2a6e434ea)
 <h1 align="center">Hi 👋, I'm Priyanshu Raj</h1>
 <h3 align="center">🚀 CSE (AI) Student | Web Developer | Tech Enthusiast</h3>
 
